@@ -1,6 +1,13 @@
 # junkcukpedia.com
 
-
+https://www.folkd.com/ref.php?go=https%3A%2F%2Fjunkcukpedia.com%2Fcategory%2Fblockchain
+https://www.folkd.com/ref.php?go=https%3A%2F%2Fjunkcukpedia.com%2Fcategory%2Fethereum
+https://www.folkd.com/ref.php?go=https%3A%2F%2Fjunkcukpedia.com%2Fcategory%2Faltcoin
+https://www.folkd.com/ref.php?go=https%3A%2F%2Fjunkcukpedia.com%2Fcategory%2Fdefi
+https://www.folkd.com/ref.php?go=https%3A%2F%2Fjunkcukpedia.com%2Fcategory%2Fnft
+https://www.folkd.com/ref.php?go=https%3A%2F%2Fjunkcukpedia.com%2Fcategory%2Fregulation
+https://www.folkd.com/ref.php?go=https%3A%2F%2Fjunkcukpedia.com%2Fcategory%2Fbitcoin
+https://www.folkd.com/ref.php?go=https%3A%2F%2Fjunkcukpedia.com%2Fcategory%2Fcryptocurrency-news
 https://pastelink.net/q0q4r89y
 https://seosecret.id/website-reviewer/topup.kincaimedia.net
 https://seotool.safelink.asia/topup.kincaimedia.net
